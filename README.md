@@ -19,15 +19,8 @@
 - i might come and say hi to you any given time, if u don't want that, just ignore
 
 ---
-## BYI
-I can be insensitive and blunt at times, as im on the spectrum so lmk if you need tonetags and boundaries. As well as slurs i can reclaim, if you are uncomfortable with that, pls do tell!
-As English is not my first language i might sound weird so don't take them out of context. 
 
-- over 20y.o, im okay with normal conversations but i'd rather not be long term friends.
-
-- basic dni
-- I'd rather have issues done in private if you have any problems with me in the past, having things unresolved builds resentment
-
+read listo for more info 
 
 
 

@@ -17,14 +17,14 @@ As English is not my first language i might sound weird so don't take them out o
 
 - anti / ship discourse, im okay with many fandom ships, I don't mind it as long as you aren't harming anyone. Just do not have a double standard, I will not interact with you if you have a strong stance on it either side.
 - basic dni
-- I'd rather have issues done in private if you have any problems with me in the past, having things unresolved builds resentment
+- I'd want issues done in private if you have any problems with me in the past, having things unresolved builds resentment
 
 ---
 ## PT section
 - if you want to be acquaintances, whisper any emoji *(preferably cat themed)*  or come sit next to me. I may be offline so -w2i-
 - Idm __copying__ or being inspo for people, just credit me if its blatant ty
 
-- i'd rather not be hid / *covered* by someone, if you must, i won't do anything 
+- i'd rather not be hid / *covered* by someone
 - if I recognize you from somewhere, I will send a crown emoji or sneeze/spit on you depending on our relation^^'
 - most times im sitting with friends or drawing offtab
 

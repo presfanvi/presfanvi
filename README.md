@@ -16,6 +16,7 @@
 - i'd rather not be hid / *covered* by someone
 - if I recognize you from somewhere, I will send a crown emoji or sneeze/spit on you depending on our relation^^'
 - most times im sitting with friends or drawing offtab
+- i might come and say hi to you!, if u don't want that, just ignore 
 
 
 

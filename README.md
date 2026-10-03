@@ -11,7 +11,7 @@
 
    ---
 ## PT section
-- if you want to be acquaintances, whisper any emoji *(preferably cat themed)*  or come sit next to me. I may be offline so -w2i-
+- come sit next to me if u wanna talk, I may be offline so -w2i-
 - Idm __getting copied__ or being inspo for people, just credit me if its blatant ty
 
 - i'd rather not be hid / *covered* by someone

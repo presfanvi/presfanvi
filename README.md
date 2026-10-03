@@ -1,7 +1,7 @@
 
 <p ## align="center"><img src="https://i.postimg.cc/HxDVD6GN/download-(35).jpg"
                       
-<br/><p align="center"> pyro / para    ,    any    ,     infp
+<br/><p align="center"> pyro / fanvi    ,    any    ,     infp
   
 <p align="center">     east asia  :   16yo   : 
   <br/>wip

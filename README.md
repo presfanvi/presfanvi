@@ -13,6 +13,7 @@
 ## PT section
 - come sit next to me if u wanna talk, I may be offline so -w2i-
 - Idm __getting copied__ or being inspo for people, just credit me if its blatant ty
+  (and don't just remove credit whenever u see me, im not gonna bite :/ )
 
 - i'd rather not be hid / *covered* by someone
 - if I recognize you from somewhere, I will send a crown emoji or sneeze/spit on you depending on our relation^^'

@@ -12,7 +12,8 @@
    ---
 ## PT section
 - come sit next to me if u wanna talk, I may be offline so -w2i-
-- Idm __getting copied__ or being inspo for people, just credit me if its blatant ty (don't pmo)
+- im friendly and a bit blunt, 
+- Idm __getting copied__ or being inspo for people, just credit me if its blatant ty
 
 - i'd rather not be hid / *covered* by someone
 - most times im sitting with friends or drawing offtab

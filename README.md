@@ -3,8 +3,6 @@
                       
 <br/><p align="center"> seiga    ,    any    ,     infp
   
-<p align="center">     east asia  :   16yo   : 
-  
   <br/>
   
  <p align="center"> ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄

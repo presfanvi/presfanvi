@@ -1,13 +1,15 @@
 
-<p ## align="center"><img src="https://i.postimg.cc/HxDVD6GN/download-(35).jpg"
+<p ## align="center"><img src="https://files.catbox.moe/e6zhmj.gif"
                       
 <br/><p align="center"> seiga    ,    any    ,     infp
   
 <p align="center">     east asia  :   16yo   : 
+  
   <br/>
+  
  <p align="center"> ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
    
- <br/> <p align="center"> ・[ata](https://preszpan.atabook.org)
+ <br/> <p align="center"> ・sign my [ata](https://preszpan.atabook.org)!・check [rentry](https://rentry.co/szprotki)・
 
    ---
 ## PT section
